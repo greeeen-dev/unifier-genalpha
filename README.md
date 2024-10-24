@@ -6,3 +6,6 @@ Gen Alpha language pack on Unifier if they kept saying those stuff.
 
 Well, here we are now. Brainrot for Unifier is real, thanks to the informal and somewhat chaotic nature of the Unifier
 comunity.
+
+(Disclaimer: I actually needed a whole brainrot dictionary to make this possible. I'm too old to keep up with the trends
+lmao)
